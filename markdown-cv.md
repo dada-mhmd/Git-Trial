@@ -29,4 +29,13 @@ seeking an web development position with an organization where demonstrated skil
 * Operating systems: Microsoft Windows
 
 ---
+## Experience
 
+- 2010-2011:  Salesman at Roadster diner
+
+- 2012-2014: Salesman at Dada cell
+
+- 2014-2016: Assistant in the Saudi embassy
+
+- 2016-2019: Floor manager at Lody's restaurant
+  
